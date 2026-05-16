@@ -1,0 +1,1 @@
+# TDS-postiz-legal-pages
